@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @250king
-- 👀 I’m interested in coding, Animation (Gochiusa, Wataten), Rhythm Game(maimai DX, CHUNITHM, Project Sekai...) and so on 
+- 👀 I’m interested in coding, Animation (Gochiusa, Wataten...), Rhythm Game(maimai DX, CHUNITHM, Project Sekai...) and so on 
 - 🌱 I’m currently a university student.
 - 📫 You can contact me in my Twitter.
 
